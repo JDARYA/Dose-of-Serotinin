@@ -39,7 +39,8 @@ The TikToks shall be evaluated on the following (~_^)
 - O. 6/10 This is a tiktok trend, so it's kinda common. I haven't seen it on my FYP (For You Page) in a while tho, and the trend was initially to be done with dogs, and so it gets a 6 ~(˘▾˘~)
 - H. 2/10 I chuckled a little when the cat refused to relinquish its grasp on the egg, but other than that it was far morw wholesome than humorous
 - L. 1/10 The user cited the fact that animals recognize eggs to be fragile and will treat them accordingly
-- WHF. 9/10 LOOK AT THE BABY SO CUTE JJAKSUQWDEEDBJHBEASBDEBWEKLWIOHIW HE PROTECC HE ATACC BUT MOST IMPORTANTLY he hold ur egg like his paws are an egg schacc (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ ✧ﾟ･: *ヽ(◕ヮ◕ヽ)
+- WHF. 9/10 LOOK AT THE BABY SO CUTE JJAKSUQWDEEDBJHBEASBDEBWEKLWIOHIW HE PROTECC HE ATACC BUT MOST IMPORTANTLY he hold ur egg like his paws are an egg schacc 
+(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ ✧ﾟ･: *ヽ(◕ヮ◕ヽ)
 
 <i> A Rose by Any Other Name Would Smell Just As Sweet </i>
 
