@@ -11,7 +11,7 @@ There shall be 3 TikToks reviewed today. Why? Idk man, I just felt like it ¯\_(
 
 <h1> The Criteria </h1>
 
-I shall evaluate the TikToks based on the following
+I shall evaluate the TikToks based on the following ☜(⌒▽⌒)☞
 
 ; Originality
 
@@ -27,7 +27,7 @@ I shall evaluate the TikToks based on the following
 
 https://www.tiktok.com/@winchtok/video/6872518218360098053?lang=en&sender_device=pc&sender_web_id=6806132444070446597&is_from_webapp=1
 
-<strong> Kitty and Egg </strong>
+<strong> Kitty and Egg ｡◕‿‿◕｡ </strong>
 
 https://www.tiktok.com/@rainb0wdrag0n/video/6872111037961817345?lang=en&sender_device=pc&sender_web_id=6806132444070446597&is_from_webapp=1
 
@@ -41,6 +41,18 @@ https://www.tiktok.com/@smellslikematterbaby/video/6878405865678834950?lang=en&s
 - O. 8/10 I've seen plenty of videos where people beat each other up for clout, so this is nothing new. But the way in which they did it was new.
 - H. 10/10 Was very much entertaining to play on loop, I thoroughly enjoyed ☜(⌒▽⌒)☞
 - L. Literally none
-- WF. 11/10 The dude's flip was cool, but would have been enhanced had we been able to witness the display of pure agony and torment on the sliding dude's countenance
+- WF. 11/10 The dude's flip was cool, but would have been enhanced had we been able to witness the display of pure agony and torment on the sliding dude's countenance ٩◔̯◔۶
 
-<i> Kitty and Egg </i>
+<i> Kitty and Egg ｡◕‿‿◕｡ </i>
+
+- O. 5/10 This is a TikTok trend, where eggs are given to doggos. Since they switched it up and gave it to a cat, they get some originality pts (~˘▾˘)~
+- H. 2/10 I chuckled a little when the cat refused to relinwuish its grasp of the egg
+- L. 1/10 They referenced that naimslas recognize the fragility of eggs and treat eggs accordingly
+- WHF. 50/10 LOOK AT THE LITTLE BABY HE SO CUTE WITTLE SHNUCKUMS HE PROTECC HE ATTACC BUT MOST IMPROTANTLY he hold egg like he is an egg shacc JBHLSUJBWDHEQWKXYWEXYEYIYBXENWHVJYQW   (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ ✧ﾟ･: *ヽ(◕ヮ◕ヽ)
+
+<i> A Rose Would Smell Just As Sweet By Any Other Name </i>
+
+- 0. 7/10 Felt like something out of a Wattpadd fanfic
+- H. 10/10 Cheered me up, especially after the "debate". Comedy was very NOICE. SNL could neverrr and Shakespeare cries knowing his comedic works pale in comparison ｡゜(｀Д´)゜｡
+- L. ┬┴┬┴┤(･_├┬┴┬┴ -49999/10 Literally nothing in the video would ever happen. The only reason it's not -50000 is bc both candidates do indeed leave the podium after the debate
+- WF. 1829/10 TRULY A BINGEWORTHY NETFLIX SERIES ENCORE ENCORE 
