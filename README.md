@@ -12,8 +12,23 @@ Despair no longer, for I shall embark upon this voyage. I will assume the role o
 I shall evaluate the TikToks based on the following
 
 ; Originality
+
 ; Humor
+
 ; Logos (if there is any, as some TikToks are made to inform the public about pressing issues)
+
 ; Wow Factor or Wholesome Factor (depending on what I feel like)
 
 <h1> The Tiky Toks </h1>
+
+<strong> RIP :') </strong>
+https://www.tiktok.com/@winchtok/video/6872518218360098053?lang=en&sender_device=pc&sender_web_id=6806132444070446597&is_from_webapp=1
+
+<strong> Kitty and Egg </strong>
+https://www.tiktok.com/@rainb0wdrag0n/video/6872111037961817345?lang=en&sender_device=pc&sender_web_id=6806132444070446597&is_from_webapp=1
+
+<strong> A Rose Would Smell Just As Sweet By Any Other Name </strong>
+https://www.tiktok.com/@smellslikematterbaby/video/6878405865678834950?lang=en&sender_device=pc&sender_web_id=6806132444070446597&is_from_webapp=1
+
+<i> Rip :') </i>
+
