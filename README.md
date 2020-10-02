@@ -12,11 +12,8 @@ Despair no longer, for I shall embark upon this voyage. I will assume the role o
 I shall evaluate the TikToks based on the following
 
 ; Originality
-
 ; Humor
-
 ; Logos (if there is any, as some TikToks are made to inform the public about pressing issues)
-
 ; Wow Factor or Wholesome Factor (depending on what I feel like)
 
 <h1> The Tiky Toks </h1>
