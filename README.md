@@ -55,4 +55,4 @@ https://www.tiktok.com/@smellslikematterbaby/video/6878405865678834950?lang=en&s
 - 0. 7/10 Felt like something out of a Wattpadd fanfic
 - H. 10/10 Cheered me up, especially after the "debate". Comedy was very NOICE. SNL could neverrr and Shakespeare cries knowing his comedic works pale in comparison ｡゜(｀Д´)゜｡
 - L. ┬┴┬┴┤(･_├┬┴┬┴ -49999/10 Literally nothing in the video would ever happen. The only reason it's not -50000 is bc both candidates do indeed leave the podium after the debate
-- WF. 1829/10 TRULY A BINGEWORTHY NETFLIX SERIES ENCORE ENCORE 
+- WF. 1829/10 TRULY A BINGEWORTHY NETFLIX SERIES ENCORE ENCORE (ʘᗩʘ')
