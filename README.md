@@ -1,7 +1,7 @@
 # Dose-of-Serotinin
 TikTok reviews handpicked by yours truly ;)
 
-<img src="TikTok.png" alt="aletter" width="189" height="170" > <img src="TikTok Main Page.png" alt="aletter" width="970" height="698" >
+<img src="TikTok.png" alt="aletter" width="189" height="170" > <img src="TikTok Main Page.png" alt="aletter" width="902" height="588" >
 
 There are many critics in the world; food critics, movie critics, psychiatrists. Alas, where are the TikTok connoisseurs? Whomst among us dares to anatomize the originality, the flavor, the immaculateness ༼ つ ◕_◕ ༽つ, the grotesqueness, the controversiality that is TikTok?
 
