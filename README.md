@@ -1,8 +1,8 @@
 # Dose-of-Serotinin
 TikTok reviews handpicked by yours truly ;)
 
-<img src="TikTok.png" alt="aletter" width="189" height="170" > <img src="TikTok Main Page.png" alt="aletter" width="970" height="703" >
+<img src="TikTok.png" alt="aletter" width="189" height="170" > <img src="TikTok Main Page.png" alt="aletter" width="970" height="698" >
 
-There are many critics in the world; food critics, movie critics, psychiatrists. Alas, where are the TikTok connoisseurs? Whomst among us dares to anatomize the originality, the flavor, the immaculateness, the grotesqueness, the controversiality, of TikTok?
+There are many critics in the world; food critics, movie critics, psychiatrists. Alas, where are the TikTok connoisseurs? Whomst among us dares to anatomize the originality, the flavor, the immaculateness ༼ つ ◕_◕ ༽つ, the grotesqueness, the controversiality that is TikTok?
 
-Despair no longer, for I shall embark upon this voyage. I will assume the role of TikTok critic. 
+Despair no longer, for I shall embark upon this voyage. I will assume the role of TikTok critic. This wesbite shall be dedicated to meticulously scrutinizing Tiky Toks I find on the limited edition app. While there are youtube compilations to be viewed online, they lack profound and qualititative reviews of the Tiky Toks they have compiled. I shall provide said quality reviews for you, the audience, to enjoy as you contemplate the incredible decision that goes into leaving a like.
