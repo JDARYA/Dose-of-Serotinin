@@ -1,4 +1,4 @@
-# Weekly-Dose-of-Serotinin
+# Dose-of-Serotinin
 TikTok reviews handpicked by yours truly ;)
 
 <img src="TikTok.png" alt="aletter" width="189" height="170" >
